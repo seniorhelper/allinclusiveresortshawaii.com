@@ -1,0 +1,2 @@
+# allinclusiveresortshawaii.com
+allinclusiveresortshawaii.com
